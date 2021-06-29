@@ -1,1 +1,1 @@
-# webtechhomework1.github.io
+lynnsentinel.github.io
